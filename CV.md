@@ -1,7 +1,7 @@
 CV Maria Iancheva
 =================
 
-Pisanostraat 296-28,Eindhoven 5623CJ| +31624909556| miancheva@gmail.com
+Pisanostraat 296-28, Eindhoven 5623CJ| +31624909556| miancheva@gmail.com
 
 
 <img src="http://imageshack.com/a/img923/2287/AyEiT3.jpg" width="67">
